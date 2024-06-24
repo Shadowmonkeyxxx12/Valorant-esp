@@ -1,0 +1,1 @@
+Click code download Zip once running Valorant oepn VALESP.exe and a menu will pop up which you can open with num lock and turn on and off also has a "aim assist" or soft aim which you can customize the strength.
